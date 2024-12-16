@@ -1,1 +1,1 @@
-# 36 Pixels - 225mm / 8.85in
+# 36 Strips - 225mm / 8.85in

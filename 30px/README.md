@@ -1,1 +1,1 @@
-# 30 Pixels - 260mm / 10.23in
+# 30 Strips - 260mm / 10.23in

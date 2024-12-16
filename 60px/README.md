@@ -1,1 +1,1 @@
-# 60 Pixels - 400mm / 15.74in
+# 60 Strips - 400mm / 15.74in
